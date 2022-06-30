@@ -1,3 +1,4 @@
-## Hi there 👋
+## Hey, we're Elith.
 
-Hey! We're Elith. We're on a journey to make life less miserable for London.
+We're on a journey to make life less miserable for London.
+More to come soon.
